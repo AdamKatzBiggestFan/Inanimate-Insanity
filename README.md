@@ -2,6 +2,6 @@
 
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
-Hello!!!! I am Koi!! If you didnt read my original bio.. PLEASE PLEASE PLEAASSSEEE Look at my Strawpage, there is nothing here and you need to look at my strawpage.
+Hello!!!! I am A.D.A.M!! If you didnt read my original bio.. PLEASE PLEASE PLEAASSSEEE Look at my Strawpage, there is nothing here and you need to look at my strawpage.
 🪼⋆.ೃ࿔*:･
-StrawPage: https://jadejellyfishkoi.straw.page/
+StrawPage: [here!](https://github.com/AdamKatzBiggestFan)
